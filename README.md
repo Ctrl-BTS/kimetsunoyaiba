@@ -1,0 +1,2 @@
+# kimetsunoyaiba
+GitHub Pages
